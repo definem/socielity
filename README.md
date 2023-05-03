@@ -1,5 +1,5 @@
 # Homework
-Socielity Website /n
+Socielity Website.
 (Incomplete. To be continued.)
 (To'liq emas. Davom ettiriladi.)
 
